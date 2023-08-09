@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sridhul Satheesh 
-- 🌱 I’m currently learning Mechatronics engineering 
+- 🌱 I’m currently learning Mechatronics engineering at Nehru College of Engineering and Research Centre 
 - 📫 How to reach me
 -  LinkedIn
    https://www.linkedin.com/in/sridhul-satheesh-81199a1b3
